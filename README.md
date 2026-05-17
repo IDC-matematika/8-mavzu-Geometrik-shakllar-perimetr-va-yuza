@@ -1,0 +1,1 @@
+# 8-mavzu-Geometrik-shakllar-perimetr-va-yuza
